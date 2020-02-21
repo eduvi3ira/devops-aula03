@@ -1,3 +1,3 @@
-Mia Khalifa
-Cameron Diaz
-Lucy Liu
+- Mia Khalifa
+- Cameron Diaz
+- Lucy Liu
