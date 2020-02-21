@@ -1,2 +1,3 @@
-# devops-aula03
-Projeto Ambiente de Desenvolvimento
+Mia Khalifa
+Cameron Diaz
+Lucy Liu
