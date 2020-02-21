@@ -1,3 +1,4 @@
 - Mia Khalifa
-- Cameron Diaz
+- Cameron Diaz - Alterado
 - Lucy Liu
+- Bruce Li
