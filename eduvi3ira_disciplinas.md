@@ -1,0 +1,1 @@
+- DevOps (A disciplina de Densenvolvimento e Operações tem como contribuição como o nome já sugere a parte de desenvolvimento do projeto).
