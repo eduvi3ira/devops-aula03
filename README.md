@@ -1,4 +1,1 @@
-- Mia Khalifa
-- Cameron Diaz - Alterado
-- Lucy Liu
-- Bruce Li
+- Eduardo Vieira de Souza 1902311
